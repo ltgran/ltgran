@@ -1,16 +1,36 @@
-## Hi there 👋
+# ᴡᴇʟᴄᴏᴍᴇ 
+20 ʏ.ᴏ.
 
-<!--
-**ltgran/ltgran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+чᴀщᴇ ʙᴄᴇᴦо нᴀхожуᴄь ʙ ᴀꜰᴋ-ᴩᴇжиʍᴇ, ᴨо϶ᴛоʍу ʍоᴦу оᴛʙᴇчᴀᴛь нᴀ ᴧичныᴇ ᴄообщᴇния ᴄ зᴀдᴇᴩжᴋой. 
+<img width="461" height="259" alt="a3a2471e414d7a5a402e56b4218c5702" src="https://github.com/user-attachments/assets/116108e4-c252-4492-94c7-165b2e729c5b" />
 
-Here are some ideas to get you started:
+## ꜰᴀɴᴅᴏᴍs 
+- ʀᴇsɪᴅᴇɴᴛ ᴇᴠɪʟ 
+- ᴄᴀʟʟ ᴏꜰ ᴅᴜᴛʏ 
+- ᴀᴛᴏᴍɪᴄ ʜᴇᴀʀᴛ 
+- ᴅʀᴀɢᴏɴ ᴀɢᴇ 
+- ᴍᴀꜰɪᴀ 
+- ᴅʏɪɴɢ ʟɪɢʜᴛ 
+<img width="540" height="280" alt="4cc7f983fee8133868d29001028f67d6" src="https://github.com/user-attachments/assets/6785bf7a-be67-4b3d-84f2-1479278cd29f" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+## ɪɴᴛᴇʀᴀᴄᴛɪᴏɴ 
+нᴇ ᴄᴀдиᴛьᴄя ᴩядоʍ, ᴇᴄᴧи оᴛᴄуᴛᴄᴛʙуᴇᴛ ᴨоʍᴇᴛᴋᴀ `ᴄ+ʜ`. 
+
+
+
+## ᴍᴜsɪᴄ 
+- ᴄɪɢᴀʀᴇᴛᴛᴇs ᴀꜰᴛᴇʀ sᴇx 
+- би-2 
+- ᴋино 
+- ᴘɪᴢᴢᴀ 
+- жᴇня ᴛᴩоɸиʍоʙ 
+- ᴛиʍᴀ ищᴇᴛ ᴄʙᴇᴛ
+<img width="640" height="360" alt="a33da148292183e81b892c5e115f1b72" src="https://github.com/user-attachments/assets/3ad20eae-07da-41fa-a90c-096d8344d21c" />
+
+
+## ʜᴏʙʙɪᴇs 
+- ɸоᴛоᴦᴩᴀɸия 
+- ʙидᴇоиᴦᴩы 
+- чᴛᴇниᴇ 
+- ʍузыᴋᴀ
