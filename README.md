@@ -42,3 +42,17 @@
 - ʙидᴇоиᴦᴩы 
 - чᴛᴇниᴇ 
 - ʍузыᴋᴀ
+
+## communication 
+- избиᴩᴀᴛᴇᴧьноᴇ общᴇниᴇ 
+- ᴩᴇдᴋиᴇ оᴛʙᴇᴛы 
+- чᴀщᴇ ʍоᴧчу
+<img width="480" height="269" alt="a8af7245355f0502897fc2bf237c78b5" src="https://github.com/user-attachments/assets/c868087a-32f6-42be-b738-b69c95045421" />
+
+
+## favorites 
+- ночныᴇ ᴨоᴇздᴋи 
+- дождь 
+- ᴄᴛᴀᴩᴀя ʍузыᴋᴀ 
+- оᴦни ᴦоᴩодᴀ
+<img width="1100" height="619" alt="b44779733d13552ebac00af543f0ba31" src="https://github.com/user-attachments/assets/eca2de70-a12a-4289-bf15-0b66af6cab5d" />
